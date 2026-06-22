@@ -1,3 +1,3 @@
 # My-self-introduction
 
-https://lh3.googleusercontent.com/drive-storage/AJQWtBP0E1F93771vpJPNyc_kUMJ4TSVtMRCCdSN5dJMiGl5T-7dDFni9Ryp2Ojj4acGxLDnqxmoWmrCwDIZ6wOgBmW_gJ1RSCg0fqAQYdqWaNEdnfmYWg=s1080
+https://drive.google.com/file/d/1AjVVaEzi5si60gVvILukUHID3esTCJ9N/view?usp=drivesdk
